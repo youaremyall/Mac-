@@ -52,4 +52,33 @@
 
 * ###### https://pan.baidu.com/s/1Q13tU4BV8hdIbjWMrVpQwg （网盘提取密码：9x27）
 
+ --- 
+#### Wireshark 3.2.2
+
+* ###### 强大的网络抓包分析工具
+
+* ###### https://pan.baidu.com/s/151QeTuK01ecniNR8zSGgvw （网盘提取密码：ixz4）
+
+ ---
+ #### NetWorker Pro 6.2.0
+
+* ###### 优秀的菜单栏网速实时监控工具
+
+* ###### https://pan.baidu.com/s/1G3XrZw7dC2lXToq7tQD7gA （网盘提取密码：hvxd）
+
+ --- 
+ #### Be Focused Pro 2.0 
+
+* ###### 优秀的工作和学习的计时器
+
+* ######  https://pan.baidu.com/s/1gEhd-6QqRuie5ct2TON3uQ （网盘提取密码：qbcf）
+
+ ---
+ 
+  #### MacCleaner 2 PRO 2.0.1
+
+* ###### Mac系统维护和优化工具合集
+
+* ######  https://pan.baidu.com/s/1QBEbtCaTV_xNc1WMDuMJeQ （网盘提取密码：ubrs）
+
  ---
