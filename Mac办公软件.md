@@ -61,3 +61,38 @@
 * ###### https://pan.baidu.com/s/1XwAaLSF1bFqP98vf8S5LQA （网盘提取密码：hwqx）
 
 ---
+#### Adobe Character Animator (Ch) 2020.3 
+
+* ###### 优秀的角色动画制作工具
+
+* ######  https://pan.baidu.com/s/1ThtzBGZrA3e1gBZye7__mA （网盘提取密码：jw8b）
+
+---
+#### Adobe Media Encoder 2020.3
+
+* ###### 强大的音视频编码软件
+
+* ######   https://pan.baidu.com/s/1mDpmvXTpf3Jf_hJn6-bBKw （网盘提取密码：pstu）
+
+---
+#### Adobe Audition (AU) 2020.0.7
+
+* ###### 强大的音频编辑工具
+
+* ######   https://pan.baidu.com/s/19v7U6PlPR9jIJnMvRfStiw （网盘提取密码：h362）
+
+---
+#### Adobe Premiere Pro (PR) 2020.3
+
+* ###### 专业的视频编辑软件
+
+* ######   https://pan.baidu.com/s/1RzeBYkvRzjYpNWhbTS7w1g （网盘提取密码：ctke）
+
+---
+#### Adobe After Effects (AE) 2020.1
+
+* ######  强大的视频视觉特效工具
+
+* ######   https://pan.baidu.com/s/1JkAJaW3e3CL6Gpz6E7BcOw （网盘提取密码：mh7e）
+
+---
